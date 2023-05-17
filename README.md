@@ -1,6 +1,3 @@
-Hello World 🌍
-
-MarineGEO circle logo
 💫About Me :
 
 👨‍🎓 I am a BIT Student
